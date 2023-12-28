@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gurjot Singh
+- 👋 Hi, I’m Gurjot Singh
 - 👀 just learning
 - 🌱 found this website
 - 💞️ dont know how to operate
